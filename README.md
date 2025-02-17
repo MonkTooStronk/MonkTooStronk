@@ -1,6 +1,5 @@
 - Monk here! (:
 - I'm a writer, worldbuilder and everything in between
-- Currently working as Writing Director @darkheadstudios
 - Find me on Discord : monktoostronk
 - (wizardry comissions currently closed)
   
